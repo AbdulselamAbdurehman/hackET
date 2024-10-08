@@ -1,2 +1,2 @@
 # hackET
-Home for Ethiopian H4X0R5
+Home for Ethiopian **ETHICAL** H4X0R5
